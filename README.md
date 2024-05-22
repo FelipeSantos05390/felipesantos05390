@@ -1,4 +1,4 @@
-### Boas vindas ao meu perfil! ✌
+### Seja bem-vindo ao meu perfil! ✌
 
 Prazer! Me chamo **Felipe Santos**!
 
